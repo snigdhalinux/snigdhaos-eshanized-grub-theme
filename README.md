@@ -1,0 +1,1 @@
+# snigdhaos-eshanized-grub-theme
